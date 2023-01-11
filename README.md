@@ -1,1 +1,1 @@
-# mobileriarimal.github.com
+# mobileriarimal.github.io
